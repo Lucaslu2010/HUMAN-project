@@ -1,0 +1,1 @@
+While walking around my local community, I noticed that there were fewer and fewer young children compared to when I was younger. This observation led me to think about declining birth rates and population change in China. I began to wonder: if each family only has one child, will the population keep shrinking over generations? 
